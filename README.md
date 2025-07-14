@@ -1,1 +1,1 @@
-# se_amitgavane
+Hi, my name is Amit Gavane, and I am currently studying in the third year of Information Technology at SGGS College of Engineering in Nanded. It’s an amazing college in Maharashtra, beautifully located near the Godavari River and surrounded by nature.
